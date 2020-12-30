@@ -11,7 +11,8 @@ tags: Life-Fragments
 
 <br />
 
-"Have a bright future!"
+"Have a bright future!🍃"
+
 
 <br />
 
